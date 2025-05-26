@@ -1,1 +1,15 @@
-# The-Breaker-S1
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.5%20Ch.36.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.37.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.38.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.39.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.40.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.41.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.42.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.6%20Ch.43.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.44.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.45.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.46.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.47.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.48.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.49.cbz
+https://github.com/Ivan010619/The-Breaker-S1/raw/refs/heads/main/A-Team_Vol.7%20Ch.50.cbz
